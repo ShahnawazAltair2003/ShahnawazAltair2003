@@ -1,0 +1,9 @@
+- 👋🏻 Hi, I’m @ShahnawazAltair2003
+- 👨🏻‍💻 Pronouns: HE/HIM
+- 🧠 Learning and Seeking Wisdom in what I love to do. 
+- 👀 I’m interested in Coding, Game Developing and Photography 
+- 🌱 I’m currently learning C and C++ 
+- 💞️ I’m looking for teacher and Mentor 
+- 📫 How to reach me ...
+- INSTRAGRAM : https://www.instagram.com/codesmith_shanoasu/
+- X :  https://x.com/BlankKhan1 
